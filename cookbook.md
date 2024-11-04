@@ -1,4 +1,4 @@
-## Party Hedgehog - Meeeettigel - Raw Pork Hedgehog
+## Party Hedgehog - Raw Pork Hedgehog
 
 ### Ingredients
  - 2 pounds ground pork, or pork roast
@@ -26,7 +26,7 @@
 
 8.  Keep chilled during entire party (on a bed of ice, for instance) and serve with bread or rolls, more onion and mustard (non-standard). 
 
-## Party Hedgehog - Mettigel - Raw Pork Hedgehog (Vegetarian)
+## Party Hedgehog - Raw Pork Hedgehog (Vegetarian)
 
 ### Ingredients
  - 2 pounds vegan meat alternative
