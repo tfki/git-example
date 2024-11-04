@@ -12,7 +12,7 @@
 
 1.  You may choose to grind your pork yourself, to ensure its freshness. Buy a roast and trim it of most of the fat. Place the pieces in the freezer for about one hour, or until they are firm to the touch but not frozen solid.
 
-2.  Use the large grinding plate and pre-cool all parts of the grinder.
+2.  Use the large grinding plate and cool all parts of the grinder.
 
 3.  Grind the meat without adding any ice. Keep the collecting bowl chilled. Season meat lightly with 1 teaspoon salt and freshly ground pepper. Some people like garlic or caraway in their raw pork, too.
 
@@ -40,7 +40,7 @@
 
 1.  You may choose to grind your pork yourself, to ensure its freshness. Buy a roast and trim it of most of the fat. Place the pieces in the freezer for about one hour, or until they are firm to the touch but not frozen solid.
 
-2.  Use the large grinding plate and pre-cool all parts of the grinder.
+2.  Use the large grinding plate and cool all parts of the grinder.
 
 3.  Grind the meat without adding any ice. Keep the collecting bowl chilled. Season meat lightly with 1 teaspoon salt and freshly ground pepper. Some people like garlic or caraway in their raw pork, too.
 
