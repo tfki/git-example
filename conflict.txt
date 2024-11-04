@@ -1,6 +1,6 @@
 Round 1
-paper
+paper/rock
 Round 2
-rock
+rock/paper
 Round 3
 scissors
