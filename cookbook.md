@@ -1,4 +1,4 @@
-## Party Hedgehog - Mettigel - Raw Pork Hedgehog
+## Party Hedgehog - Meeeettigel - Raw Pork Hedgehog
 
 ### Ingredients
  - 2 pounds ground pork, or pork roast
